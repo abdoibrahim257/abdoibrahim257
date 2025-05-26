@@ -3,7 +3,9 @@
 
 - 📫 How to reach me **abdoibrahim257@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1SEN9d64RFJJDHqxbH7eaZuHXbwImuwhd/view?usp=drive_link](https://drive.google.com/file/d/1SEN9d64RFJJDHqxbH7eaZuHXbwImuwhd/view?usp=drive_link)
+- 📄 Know about my experiences [drive.google.com/file/d/1SEN9d64RFJJDHqxbH7eaZuHXbwImuwhd/view](drive.google.com/file/d/1SEN9d64RFJJDHqxbH7eaZuHXbwImuwhd/view)
+
+- ⚡ Fun fact **My friends tend to call me Abod 😎**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
